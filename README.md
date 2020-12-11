@@ -1,3 +1,3 @@
 ### Hi there 👋, im wassim
-#### ***a software developer***  
-I love learning new technologies and building stuff.☕
+#### ***a Software Developer***  
+I love learning new things, building stuff. and coffee ☕
