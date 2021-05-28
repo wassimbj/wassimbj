@@ -1,3 +1,1 @@
-### Hi there 👋, my name is Wassim  
-
-### Software Developer
+### Hi there 👋
