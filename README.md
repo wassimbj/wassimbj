@@ -1,5 +1,3 @@
-### Hi there 👋, im wassim
-### a Software Developer
+### Hi there 👋, my name is Wassim  
 
-Im a student; </br>
-I love building stuff. and drink coffee ☕
+### Software Developer
