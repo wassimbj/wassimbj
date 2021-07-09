@@ -1,3 +1,3 @@
 ### Hi there 👋  
 
-trying my best to learn something new every day
+i don't what to write here...
